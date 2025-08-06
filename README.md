@@ -1,3 +1,5 @@
+Link : https://fahrul26.github.io/rulisipenerjemah/
+
 🌐 Ruli si Penerjemah
 
 
